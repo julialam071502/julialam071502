@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about work-life balance
 - 📫 How to reach me: czg9kd@virginia.edu
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I have 8 dogs
+- ⚡ Fun fact: I have 8 dogs and 5 cats
 
